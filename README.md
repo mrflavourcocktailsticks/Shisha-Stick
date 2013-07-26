@@ -1,0 +1,4 @@
+Shisha-Stick
+============
+
+We are proud to present our new premium product, Mr Flavour cocktail sticks. Our electronic cocktails are presented in a satin chrome finished pen finished off with a high cut cubic zirconia tip that glows purple when activated. Our flavours have been made using secret ingredients of award winning mixologists to taste exactly like cocktails. All pens are made to European standards and have full CE certifications. Our products contain no nicotine, no tobacco, no tar and are fully legal to smoke indoors. Our 5 cocktail stick flavours are:- • Mojito • Strawberry Champagne • Cosmopolitan • Peaches &amp; Cream • Caribbean Breeze Each pen is presented in a silk matt black box with a high gloss colour outline depending on which flavour has been chosen. The pens are presented in a laced purple velvet padded inlet which is taken out by the use of a purple tab once the box is open.
